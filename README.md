@@ -6,3 +6,5 @@ We worked in reaction to the acute shortage of protective wear for medical perso
 
 Licence  of face shields
 We share these files under non-commercial licence. It would be great if you donated these shields to those in need for free. If you need to cover your production costs, we are ok with you selling the shields for production cost. 
+
+
